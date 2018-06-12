@@ -1,4 +1,4 @@
-# Shanghai Node-Party Assets
+# Node Party Shanghai
 
 ## 20180608
 
