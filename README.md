@@ -3,8 +3,10 @@
 ## 20180609
 
 ### Videos ###
-https://v.douyu.com/show/Yo4evymxO5yv8L62 47:00 开始
+https://v.douyu.com/show/Yo4evymxO5yv8L62 47:00开始
+
 https://v.douyu.com/show/0zZVvPz9Yo2MO4E2
+
 https://v.douyu.com/show/1LDR7QpJBJgvJzx8
 
 ### Lectures
